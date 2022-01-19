@@ -9,7 +9,7 @@ I have no experience in any IT's but I'm looking forward to work in field of dat
 ## Links
 [Linkedin](https://www.linkedin.com/in/shabnam-shaik-38b50513a/)
 
-[Github](https://github.com/S542362)
+[Github](https://github.com/ShabnamShaikk)
 
 
 
